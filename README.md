@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **angngima50@gmail.com**
 
-- ⚡ Fun fact **I can draw your sketch.**
+- ⚡ Fun fact **I can sketch you.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
