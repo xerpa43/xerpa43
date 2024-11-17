@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **php, JavaScript**
 
-- 📫 How to reach me **angngima50@gmail.com**
+- 📫 How to reach me **angngima47@gmail.com**
 
 - ⚡ Fun fact **I can sketch you.**
 
